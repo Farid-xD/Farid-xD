@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @Farid-xD
-- 👀 I’m interested in bitches
 - 🌱 I’m currently learning web dev and marketing
 - 📫 How to reach me @fariduddinmuhammad9@gmail.com
 
