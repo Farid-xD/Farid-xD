@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Farid-xD
+- 👋 Hi, I’m @Farid
 - 📫 Reach me at @fariduddinmuhammad9@gmail.com
 
 <!---
